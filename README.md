@@ -1,4 +1,4 @@
-# Well Hello there 👋  
+# Well, Hello there 👋  
 
 I'm **Nayana Prabhashwara**, an enthusiastic **IT student** who loves exploring the endless possibilities of technology.  
 💻 Passionate about **learning new concepts**, **building creative projects**, and **solving real-world problems through innovation**.  
